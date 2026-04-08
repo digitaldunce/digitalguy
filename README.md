@@ -1,6 +1,6 @@
 # Personal Introduction
 
-Hello! I am [Your Name], and I am excited to share my journey in the world of digital marketing with you.
+Hello! I am Suah Ikpen Gbassana, and I am excited to share my journey in the world of digital marketing with you.
 
 ## How I Started
 My journey began [insert how you started]. I was fascinated by the power of online platforms and how businesses could leverage them to connect with their audience. This passion led me to dive deep into the field, learning everything I could about SEO, social media, and content marketing.
